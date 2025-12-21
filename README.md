@@ -1,10 +1,8 @@
 INDIAN - Fivem Configurator / Dev
 
-Administrator ~ @discord.gg/qbcore
-
 Aditya Nath
 
-Feel Free to Join my Dev Server Over here i will provide support for my resources :)  https://discord.gg/MEDzUG7cAS
+Feel Free to Join my Dev Server Over here i will provide support for my resources :)  [Discord](https://discord.gg/rjfxxQeY)
 
 My Tebex - https://evilanious.tebex.io/
 
