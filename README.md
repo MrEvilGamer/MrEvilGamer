@@ -2,9 +2,11 @@ INDIAN - Fivem Configurator / Dev
 
 Aditya Nath
 
-Feel Free to Join my Dev Server Over here i will provide support for my resources :)  [Discord](https://discord.gg/rjfxxQeY)
+Feel Free to Join my Dev Server Over here i will provide support for my resources :)  
 
 My Tebex - https://evilanious.tebex.io/
+
+My Discord - [Here](https://discord.gg/rjfxxQeY)
 
 If you'd like to buy me a coffee! https://ko-fi.com/mrevilgamer
 
