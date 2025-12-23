@@ -4,8 +4,6 @@ Aditya Nath
 
 Feel Free to Join my Dev Server Over here i will provide support for my resources :)  
 
-My Tebex - https://evilanious.tebex.io/
-
 My Discord - [Here](https://discord.gg/3c3mcjSBv9)
 
 <p align="center">
